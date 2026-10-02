@@ -1,2 +1,0 @@
-# Leoriagsasdecv
-Supervision Leoriag
